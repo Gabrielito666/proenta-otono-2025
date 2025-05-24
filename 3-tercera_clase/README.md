@@ -96,4 +96,3 @@ dejo las partituras que ya han echo ... pueden retomar o hacer obras nuevas... t
 tambien uno puede inventar su propia forma... pero es importante que sea a conciencia y bien fundamentado... ya que estas formas la gracia que tienen es que han sido probadas ya... una forma rara sería más experimantal
 
 La idea es que vayamos ampliando el portafolio más y más para que mejoren y tengamos más opciones de donde escojer para tocar en la feria de proenta en los avellanos.
-
